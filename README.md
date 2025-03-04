@@ -3,7 +3,7 @@
 
 - 📄 Know about my experiences [https://www.linkedin.com/in/sandalu-dewthilini-746454274/](https://www.linkedin.com/in/sandalu-dewthilini-746454274/)
 
-<h3 align="left">Connect with me:</h3>
+
 <p align="left">
 </p>
 
